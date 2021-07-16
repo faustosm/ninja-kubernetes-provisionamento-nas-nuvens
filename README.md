@@ -67,7 +67,7 @@ A primeira versão deste treinamento está prevista para ser lançada no dia 15/
 
 Acreditamos que um treino realmente bem feito acelera demais seu desenvolvimento e te deixa cada vez mais preparado(a) para os desafios que você vai encontrar no campo de jogo. 
 
-Para ser notificado(a) do lançamento, pedimos que deixe seu email aqui neste [formulário](https://forms.gle/4wrGYPqRmkZJiz8m7). 
+Para ser notificado(a) do lançamento, pedimos que deixe seu email aqui neste [formulário](https://forms.gle/4wrGYPqRmkZJiz8m7). Não consegue acessar o google forms? Temos uma versão aqui no [typeform](https://zup1.typeform.com/to/TcenHBcZ). 
 
 
 
